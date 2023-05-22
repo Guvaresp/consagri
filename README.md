@@ -1,2 +1,2 @@
 # consagri
-my own company in thee future
+my own company in the future
